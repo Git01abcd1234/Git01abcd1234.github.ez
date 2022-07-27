@@ -1,8 +1,8 @@
-!!! PRIORITAS !!!  
+(!!! PRIORITAS !!!)  
 https://bit.ly/KelompokCintaLingkunganFIK22  
 https://bit.ly/BookletOKKMabimFIK2022  
-
-- HISTORI LINK:  
+-
+- Histori Link:  
 SIAK-NG:  
 https://academic.ui.ac.id  
 Akun:  
@@ -11,18 +11,18 @@ PemKes:
 https://reservasi.ehealth.co.id/kliniksatelitui  
 Jaket:  
 http://ui.id/JaketKuningUI2022  
-Info PKKMB:  
-https://kemahasiswaan.ui.ac.id/pkkmb-2022  
 PO Buku:  
 https://bit.ly/BukuKeperawatan  
 PO Alkes:  
 https://bit.ly/PKMBFIKUI  
 Merch. UI:  
 https://bit.ly/FormPemesananUIGoodsFIK2022  
+Info PKKMB:  
+https://kemahasiswaan.ui.ac.id/pkkmb-2022  
   
 - Jadwal WelMab:  
-WelMab-1: https://t.ly/WK2C  
-WelMab-2: ???  
+https://t.ly/WK2C (WelMab-I)  
+??? (WelMab-II)  
   
 - OKK UI:  
 https://okk.ui.ac.id/Kelompok  
