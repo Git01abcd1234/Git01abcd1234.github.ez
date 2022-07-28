@@ -19,12 +19,15 @@ https://bit.ly/FormPemesananUIGoodsFIK2022
 Info PKKMB:  
 https://kemahasiswaan.ui.ac.id/pkkmb-2022  
   
+- Cek Kelompok Mentoring:
+https://okk.ui.ac.id/Kelompok
+  
 - Jadwal WelMab:  
 https://t.ly/WK2C (WelMab-I)  
 ??? (WelMab-II)  
   
 (!!! PRIORITAS JUGA !!!)  
-OKK UI: https://okk.ui.ac.id/Kelompok  
+Links OKK UI hingga sekarang:
 https://bit.ly/Misi1OKKUI2022  
 https://bit.ly/PenugasanPraOKKMABIMFIKUI22  
 https://twb.nz/okkmabimfikui2022  
