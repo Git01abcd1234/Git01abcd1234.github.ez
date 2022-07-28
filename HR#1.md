@@ -23,7 +23,7 @@ https://kemahasiswaan.ui.ac.id/pkkmb-2022
 https://t.ly/WK2C (WelMab-I)  
 ??? (WelMab-II)  
   
-(!!! PRIORITAS JUGA !!!)
+(!!! PRIORITAS JUGA !!!)  
 OKK UI:  
 https://okk.ui.ac.id/Kelompok  
 https://bit.ly/Misi1OKKUI2022  
