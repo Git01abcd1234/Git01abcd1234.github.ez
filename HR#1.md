@@ -1,5 +1,4 @@
 (!!! PRIORITAS !!!)  
-https://bit.ly/KelompokCintaLingkunganFIK22  
 https://bit.ly/BookletOKKMabimFIK2022  
 -
 - Histori Link:  
@@ -24,15 +23,12 @@ https://kemahasiswaan.ui.ac.id/pkkmb-2022
 https://t.ly/WK2C (WelMab-I)  
 ??? (WelMab-II)  
   
+(!!! PRIORITAS JUGA !!!)
 - OKK UI:  
 https://okk.ui.ac.id/Kelompok  
 https://bit.ly/Misi1OKKUI2022  
 https://twb.nz/okkmabimfikui2022  
 https://bit.ly/PenugasanPraOKKMABIMFIKUI22  
 https://bit.ly/PanduanMisiOKKUI22  
-  
-(!!! PRIORITAS !!!)  
 https://bit.ly/KelompokCintaLingkunganFIK22  
-https://bit.ly/BookletOKKMabimFIK2022  
--
- 
+-  
