@@ -24,7 +24,7 @@ https://t.ly/WK2C (WelMab-I)
 ??? (WelMab-II)  
   
 (!!! PRIORITAS JUGA !!!)
-- OKK UI:  
+OKK UI:  
 https://okk.ui.ac.id/Kelompok  
 https://bit.ly/Misi1OKKUI2022  
 https://twb.nz/okkmabimfikui2022  
